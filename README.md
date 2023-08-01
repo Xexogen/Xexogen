@@ -1,5 +1,5 @@
-| XEXOGEN
+| Cluxsit
 | Me From Russia
 | im' Started Coder
 | Python (chuchut)
-Discord: floppa_popa228new
+Discord: no_name_0x007
